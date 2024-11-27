@@ -1,0 +1,1 @@
+Hello! Despite this website not being the greatest, I still wish to publish it - it's my first website in almost a year, thanks to the gratitude of Hack Club! I loved and still love coding, and would love if you upvoted this project. Thank you!!
